@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @thecodingkatt
-- - 😄 Pronouns: She/Her
+- 😄 Pronouns: She/Her
 - 👀 I’m interested in investigative journalism and tech.
 - 💞️ I’m looking to collaborate on fun web design/development projects
 - ⚡ Fun fact: Canton, MA, had a strange incident of butts randomly calling people back and forth in the wee morning hours of 1/29/22.
